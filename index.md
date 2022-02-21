@@ -1,3 +1,4 @@
 ## 欢迎来到扶家大院
 **有什么疑问请联系我**
-[点击获取我的邮箱]（charonmarry@qq.com）
+
+charonmarry5@gamil.com
